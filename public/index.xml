@@ -1,0 +1,33 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>Efuasei</title>
+    <link>/</link>
+    <description>Recent content on Efuasei</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en</language>
+    <copyright>&amp;copy; &lt;a href=&#34;https://github.com/efuasei&#34;&gt;Efua Osei&lt;/a&gt; 2022</copyright>
+    <lastBuildDate>Wed, 23 Nov 2022 06:35:14 +0700</lastBuildDate><atom:link href="/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>My First Time</title>
+      <link>/posts/my-first-time/</link>
+      <pubDate>Wed, 23 Nov 2022 06:35:14 +0700</pubDate>
+      
+      <guid>/posts/my-first-time/</guid>
+      <description>I don’t believe in love 🤷🏾‍♀️ Yes I’m sure.
+I won’t claim to have a lot of relationship experience but bruh. I have seen enough to make me not want to be in another.
+I mean yeah, love is beautiful and all. BUT. There’s too many uncertainties as to whether or not the relationship is going to be successful, and that’s not talked about enough!
+Will they die and leave you ?</description>
+    </item>
+    
+    <item>
+      <title>My First Post</title>
+      <link>/posts/my-first-post/</link>
+      <pubDate>Mon, 21 Nov 2022 06:18:05 +0700</pubDate>
+      
+      <guid>/posts/my-first-post/</guid>
+      <description>Grettas first post I am in love with nobody!</description>
+    </item>
+    
+  </channel>
+</rss>

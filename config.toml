@@ -1,0 +1,25 @@
+seurl = "https://efuasei.github.io"
+languageCode = "en"
+title = "Efuasei"
+theme = "charaka-hugo-theme"
+copyright = "&copy; <a href=\"https://github.com/efuasei\">Efua Osei</a> 2022"
+disqusShortname = ""
+googleAnalytics = ""
+publishdir = "./docs"
+
+[params]
+
+[params.highlight]
+  style = "zenburn"
+
+[[params.social]]
+  url = "about.html"
+  fa_icon = "fas fa-info" 
+
+[[params.social]]
+  url = "https://github.com/efuasei"
+  fa_icon = "fab fa-github"
+
+[[params.social]]
+  url = "https://twitter.com/efuasei"
+  fa_icon = "fab fa-twitter"
