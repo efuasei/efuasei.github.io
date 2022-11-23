@@ -9,6 +9,10 @@ publishdir = "./docs"
 
 [params]
 
+[author]
+  name = "efuasei"
+  homepage = "https://efuasei.github.io"
+
 [params.highlight]
   style = "zenburn"
 
