@@ -35,7 +35,7 @@ Break time came around and Kofi walked up to me, with that same knowing smile.
 
 K🙍🏿‍♂️: ‘Effy i cannot find my book too 😏”. 
 
-E🙎🏿: ’Shut the fuck bro 😂
+E🙎🏿: ’Shut the fuck up bro 😂
 
 I smacked him and got up to leave for the canteen. He naturally tagged along like clockwork. 
 
@@ -83,12 +83,6 @@ I chose a seat as far away from her as possible. And then i heard an “oh “
 It’s almost as if the Queen of buttons in the land of Buttons had heard my unuttered prayer and granted it.. Because the first button on Wendy’s tank had popped off. 
 
 Conveniently, i had safety pins in my bag. Don’t ask me why ? I was the odd girl in the class that had all the miscellanous things. 
-
-Need a solitape ? Go ask Effy.
-
-Need a spare pen? Go ask Effy.
-
-Need brown paper for your book? Go ask Effy. 
 
 I was a walking mini mart…. but i digress. 
 
