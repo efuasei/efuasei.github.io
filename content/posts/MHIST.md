@@ -36,7 +36,7 @@ There are times I thought she didn’t possess a vagina herself, Reverend Ma. Sh
 
 👵🏿you will die by lightning the instant you do. I shall not present unclean children to God."
 
-🛐 🐧
+🛐 
 
 Daddy didn’t have a problem with Reverend Ma’s obsession with bringing us up on the straight and narrow. He told us it was good for us ? 💭
 
@@ -50,7 +50,7 @@ So, home-school it was.
 
 My brother and I were home-schooled. No, it was bad. Don’t think it wasn’t.
 
-🛐 ☄️
+🛐 
 
 Home grown is the right word because we would only see other people at church. We were never allowed outside of the house for anything except church.
 
@@ -64,7 +64,7 @@ She never touched me and my brother that way. 🙅🏿‍♀️
 
 Our nanny did all the touching.
 
-🛐 👺
+🛐 
 
 Nanny took care of our domestics but conveniently Nanny was a mute.
 
@@ -84,7 +84,7 @@ Kofi named his Tyrone. I do not know why.
 
 Ma insisted that we name them; they were our pets, our companions that would guide us on the way to God. They were our spiritual guides.
 
-🛐 🔊
+🛐 
 
 **The sounds...**
 
@@ -100,7 +100,7 @@ Kofi and I had a telepathic connection. I am sure he’d heard my musings and kn
 
 **The sounds..** we’d heard them for years. They usually happened past midnight. I thought they were loud drums and cymbals. They added spice to my frequent nightmares. Kofi knew this and was always there for me. ❤️ What choice did he have?
 
-🛐 🦴
+🛐 
 
 **The sounds..**
 
@@ -118,7 +118,7 @@ I started panicking, I held my knees to my chest and rocked gently. What if he d
 
 Surely though, there could be no evil where Reverend Ma existed. I let myself relax.
 
-🛐 🤖
+🛐 
 
 Kofi did come back in one piece after about 15 hellishly long minutes. I asked him what those sounds were that had tormented me for years.
 
@@ -132,7 +132,7 @@ He grew impatient.
 
 🙍🏿‍♂️: Just come with me and stop being impertinent.
 
-🛐 🫀
+🛐 
 
 We were going against God. Reverend Ma and God were synonymous to me. I started praying for forgiveness as we made our way stealthily up the stairs.
 
@@ -146,7 +146,7 @@ The drums and cymbals sounded like our church choir. Why would our church choir 
 
 I looked quizzically at Kofi. He just shrugged and motioned that I quickened my steps.
 
-🛐 👀
+🛐 
 
 We entered the room through a sliding window. Kofi entered first, and then helped me in. We were well hidden behind thick red velvet curtains that dropped from the ceiling.
 
@@ -158,7 +158,7 @@ And then I saw them. I half expected to see a podium, daddy preaching, or at lea
 
 I saw a king-sized bed instead.
 
-🛐 🛌🏿
+🛐 
 
 And then I saw two bodies, sweat glistening.
 
@@ -176,7 +176,7 @@ So those were how adult breasts looked like.
 
 Daddy was moving behind her, he looked like he was in pain. I could not quite read the expressions on Ma’s face, she was floating between what seemed like pain and yet satisfaction.
 
-🛐 🤭
+🛐 
 
 The tempo of the choral music increased and so did Daddy’s frenzied movements.
 
@@ -196,7 +196,7 @@ Daddy’s waist and the choral voices Ying Yang-ing.
 
 And then out of nowhere, Reverend Ma let out a horrendous scream and started spasming. The choir screamed too in unison. Daddy collapsed on top of her and Kofi dragged me out before we were caught.
 
-🛐 👴🏿
+🛐 
 
 I was filled with so many more questions, my head could literally burst.
 
@@ -336,7 +336,7 @@ I passed out, my body gave out from the overdose of ecstasy.
 
 I woke up the next morning, smug. I radiated with the warmth from the previous night’s escapades. I was almost too shy to see Kofi when we went for our usual classes during the day.
 
-He made sure I suffered for it too.😂
+He made sure I suffered for it too.
 
 If Ma noticed anything, she did a good job at hiding it.I was itching for night to fall, and it fell heavily.
 
@@ -350,13 +350,13 @@ We couldn’t care less what we saw the parents doing, and we decided we loved e
 
 We wouldn’t want to incur the wrath of God.😞
 
-🛐 🙂
+🛐 
 
 This night too, like the previous night, Kofi showed me gentle ‘lorvings’, only going harder when I used my words.
 
 **Sin: Do not touch Poise and Voice.**
 
-Kofi turned me over and massaged the lubricant gently into me. It felt cool against my skin, it was almost ticklish. 🙃
+Kofi turned me over and massaged the lubricant gently into me. It felt cool against my skin, it was almost ticklish. 
 
 He wiggled a finger inside, my hole was tight. He tried moving in and out slowly until I got comfortable with one finger.
 
@@ -368,7 +368,7 @@ Soon it was time.
 
 I was open enough to receive him, the love of my existence.
 
-🛐 🧘🏿‍♀️
+🛐 
 
 He made sure I was slippery, then he put me on all fours.
 
@@ -384,7 +384,7 @@ He’d trail Tyrone on my back and whip me when I was being insubordinate. That 
 
 He’d drink of me. I was his spiritual elixir.
 
-🛐 ☺️
+🛐 
 
 He’d fuck me. Fuck, fuck is a nice word to say.
 
@@ -410,7 +410,7 @@ Of course, Kofi and I were forbidden from learning sign language, but we picked 
 
 We mentally got ready for the hellish rage that loomed ahead.
 
-🛐 🤟🏿
+🛐 
 
 Hell, or was it?
 
@@ -426,7 +426,7 @@ She looked quite pleased with herself when I started whimpering.
 
 We prayed for 2 long hours after that, to purge us, she said. She made us kneel in front of her, then she put her feet on our heads. One leg per head.
 
-🛐 👽
+🛐 
 
 And then came the confession.
 
@@ -446,7 +446,7 @@ She said she knew how to prove it, and if the results showed that we had, oh we 
 
 I had wished that a few times already, so that did not sound bad.
 
-🛐 🥶
+🛐 
 
 She called for the doctor. Told him it was urgent business.
 
@@ -466,7 +466,7 @@ I explained . He shook his head sadly, and told me he would talk to Reverend Ma.
 
 About what though? Could she prevent my death?
 
-🛐 🤥
+🛐 
 
 After hours of trying to explain to me , I finally gave up and positioned myself on the table.
 
@@ -486,7 +486,7 @@ The doctor wiggled around in me some more, it felt just weird.
 
 He typed out a report for me to submit to Reverend Ma.
 
-🛐 😎
+🛐 
 
 I asked him what the verdict was. He said I was still very much a virgin.
 
